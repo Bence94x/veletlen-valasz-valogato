@@ -1,0 +1,1 @@
+# veletlen-valasz-valogato
